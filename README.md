@@ -13,10 +13,15 @@ Neurodivergent queer and alterhuman     x      Rotting dancing corpse not scared
 🧬-->
 
 DO NOT INTERACT
+
 × RACISTS, HOMOPHOBES/TRANSPHOBES, SEXISTS, ECT….. Stay away from me.
+
 × ANTI-FURRIES, ANTITHERIANS OR ANTIALTERHUMANS - Don’t like people having fun expressing themselves? Get out.
+
 × PROSHIPPERS/ AGRESSIVE SHIPPERS - I’m rarely a fan of shipping even more in some fandoms. Though I do have a little few rare pairs for some. Sure some are cute and you can totally continue your shipping freely but just don’t make a fuss if I don’t agree with it.
+
 × TROLLS - Y’all just aren’t funny most of the time…
+
 × NO RELIGION FORCING - I don’t care what you believe in or what you are but just don’t force it onto me. Everyone have their own beliefs and respect that.
 
 MY INTERESTS
