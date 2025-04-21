@@ -8,9 +8,11 @@ Glimpse of my vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 
 🧬--> 
 
-Neurodivergent queer and alterhuman     x      Rotting dancing corpse not scared to bite
+Neurodivergent queer and alterhuman [ask if curious!] Rotting dancing corpse not scared to bite
 
-🧬-->
+Don't request until we've talked a bit [Tonetags/emotes prefferred to talk, thanks for being patient with me!]
+
+🔪-->
 
 DO NOT INTERACT
 
@@ -39,3 +41,5 @@ GAMES - Hollow Knight, Needy Streamer Overload, Doki Doki Literature Club, Zelda
 MUSIC - Jazmin Bean, S3RL, Baby Bugs, Ke$ha, Poppy, Reol, My Chemical Romance, Rebzyyx, Penelope Scott, Hatsune Miku, Guchiry, Lady Monster, Ghost And Pals, Melanie Martinez, Suicidal Idol, Biz, any breakcore, and more and more… I’m pretty open.
 
 I DO NOT SUPPORT THE ACTIONS OF ANYONE PROBLEMATIC OR AM PART OF SOME FANDOM’S TOXICITY, I JUST ENJOY THE CREATIONS.
+
+![image](https://files.catbox.moe/v6leh7.jpeg)
