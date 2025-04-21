@@ -1,4 +1,4 @@
-![image]https://files.catbox.moe/3b8771.gif
+![image](https://files.catbox.moe/3b8771.gif)
 
 "Round and round the ghosts of beauty glide, and haunt the places where their honour died"
 
