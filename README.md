@@ -14,7 +14,7 @@ Glimpse of my vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 -->
 🌙: Online // ⛔️: AFK or busy w/ skins
 
-Neurodivergent queer and alterhuman [ask if curious!] Rotting dancing corpse not scared to bite
+Neurodivergent queer system and alterhuman [ask if curious!] Rotting dancing corpse not scared to bite
 
 Don't request until we've talked a bit [Tonetags/emotes prefferred to talk, thanks for being patient with me!]
 
@@ -27,8 +27,6 @@ DO NOT INTERACT
 × RACISTS, HOMOPHOBES/TRANSPHOBES, SEXISTS, ECT….. Stay away from me.
 
 × ANTI-FURRIES, ANTITHERIANS OR ANTIALTERHUMANS - Don’t like people having fun expressing themselves? Get out.
-
-× PROSHIPPERS/ AGRESSIVE SHIPPERS - I’m rarely a fan of shipping even more in some fandoms. Though I do have a little few rare pairs for some. Sure some are cute and you can totally continue your shipping freely but just don’t make a fuss if I don’t agree with it.
 
 × TROLLS - Y’all just aren’t funny most of the time…
 
