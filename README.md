@@ -14,15 +14,14 @@ Glimpse of my vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 -->
 🌙: Online // ⛔️: AFK or busy w/ skins
 
-Neurodivergent queer system and alterhuman [ask if curious!] Rotting dancing corpse not scared to bite
+Neurodivergent queer plural and alterhuman [ask if curious!] Rotting dancing corpse not scared to bite
 
 Don't request until we've talked a bit [Tonetags/emotes prefferred to talk, thanks for being patient with me!]
 
 DO NOT COVER, COPY OR CUDDLE! - Cuddles are okay as long as there’s C+H in my name. I can accept to be covered from GOOD friends. Taking inspo from my skins is okay, but do not copy or post without having my permission.
 
-🔪-->
 
-DO NOT INTERACT
+DO NOT INTERACT🔪
 
 × RACISTS, HOMOPHOBES/TRANSPHOBES, SEXISTS, ECT….. Stay away from me.
 
@@ -32,13 +31,13 @@ DO NOT INTERACT
 
 × NO RELIGION FORCING - I don’t care what you believe in or what you are but just don’t force it onto me. Everyone have their own beliefs and respect that.
 
-MY INTERESTS
+MY INTERESTS🥩
 
 OCS/AU: Don’t be shy to share! I love hearing about it and helping for ideas, even do crossovers and/or rp. (plz, plz, plz)
 
-AESTHETICS/FASHIONS - Cutegore, Scene, Emo, Pastel Goth, Weirdcore, Dreamcore, Internetcore, Cryptidcore, Nightcore, Jirai-Kei, 2020 alt
+AESTHETICS/FASHIONS - Cutegore, Scene, Emo, Pastel Goth, Weirdcore, Dreamcore, Internetcore, Cryptidcore, Nightcore, Jirai-Kei, 2020 alt, fleshcore
 
-TV/MEDIAS - Creepypastas, Spirited Away, Murder Drones, Hazbin Hotel, Helluva Boss, Arcane, Psychocuties, any horror psychological or ‘fantasy’ movie/series…
+TV/MEDIAS - Creepypastas, Marble Hornets, Spirited Away, Murder Drones, Hazbin Hotel, Helluva Boss,Psychocuties, any horror psychological or ‘fantasy’ movie/series…
 
 MANGAS/ANIME - Toilet Bound Hanako-Kun, Demon Slayer, My Hero Academia, Pokemon, Bungou Stray Dog…
 
