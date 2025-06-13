@@ -1,4 +1,4 @@
-![image](https://files.catbox.moe/3b8771.gif)
+![image](https://files.catbox.moe/ksvrwx.jpeg)
 
 
 
@@ -47,4 +47,4 @@ MUSIC - Jazmin Bean, S3RL, Baby Bugs, Ke$ha, Poppy, Reol, My Chemical Romance, R
 
 I DO NOT SUPPORT THE ACTIONS OF ANYONE PROBLEMATIC OR AM PART OF SOME FANDOM’S TOXICITY, I JUST ENJOY THE CREATIONS.
 
-![image](https://files.catbox.moe/v6leh7.jpeg)
+
