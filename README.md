@@ -1,4 +1,4 @@
-![image](https://files.catbox.moe/ksvrwx.jpeg)
+![image](https://files.catbox.moe/c0pxcl.jpeg)
 
 
 
@@ -29,7 +29,7 @@ DO NOT INTERACT🔪
 
 × TROLLS - Y’all just aren’t funny most of the time…
 
-× NO RELIGION FORCING - I don’t care what you believe in or what you are but just don’t force it onto me. Everyone have their own beliefs and respect that.
+× NO RELIGION FORCING - I don’t care what you believe in or what you are but just don’t force it onto me. Everyone have their own beliefs and respect that, I'm a satanist.
 
 MY INTERESTS🥩
 
