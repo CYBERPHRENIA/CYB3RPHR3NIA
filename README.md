@@ -14,24 +14,24 @@ Glimpse of my vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 -->
 🌙: Online // ⛔️: AFK or busy w/ skins
 
-Neurodivergent queer plural and alterhuman [ask if curious!] Rotting dancing corpse not scared to bite
+Neurodivergent queer plural and alterhuman [ask if curious] Rotting dancing corpse not scared to bite
 
-Don't request until we've talked a bit [Tonetags/emotes prefferred to talk, thanks for being patient with me!]
+Don't request until we've talked a bit [Tonetags/emotes prefferred to talk]
 
 DO NOT COVER, COPY OR CUDDLE! - Cuddles are okay as long as there’s C+H in my name. I can accept to be covered from GOOD friends. Taking inspo from my skins is okay, but do not copy or post without having my permission.
 
 
 DO NOT INTERACT🔪
 
-× RACISTS, HOMOPHOBES/TRANSPHOBES, SEXISTS, ECT….. Stay away from me.
+× RACISTS, HOMOPHOBES/TRANSPHOBES, SEXISTS, ECT…
 
-× ANTI-FURRIES, ANTITHERIANS OR ANTIALTERHUMANS - Don’t like people having fun expressing themselves? Get out.
+× ANTI-FURRIES, ANTITHERIANS OR ANTIALTERHUMANS 
 
-× TROLLS - Y’all just aren’t funny most of the time…
+× TROLLS
 
-× NO RELIGION FORCING - I don’t care what you believe in or what you are but just don’t force it onto me. Everyone have their own beliefs and respect that, I'm a satanist.
+× NO RELIGION FORCING 
 
-MY INTERESTS🥩
+INTERESTS🍬
 
 OCS/AU: Don’t be shy to share! I love hearing about it and helping for ideas, even do crossovers and/or rp. (plz, plz, plz)
 
@@ -41,9 +41,11 @@ TV/MEDIAS - Creepypastas, Marble Hornets, Spirited Away, Murder Drones, Hazbin H
 
 MANGAS/ANIME - Toilet Bound Hanako-Kun, Demon Slayer, My Hero Academia, Pokemon, Bungou Stray Dog…
 
-GAMES - Hollow Knight, Needy Streamer Overload, Doki Doki Literature Club, Zelda Breath Of The Wild, Pokemon Sword And Shield, Genshin Impact, Honkai Star Rail, Poppy Playtime, Ponytown duh…
+GAMES - Doki Doki Literature Club, Needy Streamer Overload, Minecraft, Zelda Breath Of The Wild, Pokemon Sword And Shield, Genshin Impact, Honkai Star Rail, The Coffin Of Andy And Ashley, Ponytown duh…
 
-MUSIC - Jazmin Bean, S3RL, Baby Bugs, Ke$ha, Poppy, Reol, My Chemical Romance, Rebzyyx, Penelope Scott, Hatsune Miku, Guchiry, Lady Monster, Ghost And Pals, Melanie Martinez, Suicidal Idol, Biz, any breakcore, and more and more… I’m pretty open.
+MUSIC - Jazmin Bean, S3RL, Baby Bugs, Zheanie, Filthshit, Ke$ha, Poppy, Reol, My Chemical Romance, Rebzyyx, Penelope Scott, Hatsune Miku, Guchiry, Lady Monster, Ghost And Pals, Melanie Martinez, Suicidal Idol, Biz, any breakcore, and more and more and more amd m0re @n& mx:r3 more MORE MORE MORE MORE MORE MORE MORE MORE MORE M&;?!'F&...
+
+RESTART FILE...
 
 I DO NOT SUPPORT THE ACTIONS OF ANYONE PROBLEMATIC OR AM PART OF SOME FANDOM’S TOXICITY, I JUST ENJOY THE CREATIONS.
 
