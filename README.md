@@ -14,7 +14,7 @@ Glimpse of my vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 -->
 🌙/🟢: Online // ⛔️: AFK or busy w/ skins
 
-Neurodivergent queer plural and alterhuman [ask if curious] Rotting dancing corpse not scared to bite
+Neurodivergent disordered queer plural and alterhuman [ask if curious] Rotting dancing corpse not scared to bite
 
 Don't request until we've talked a bit [Tonetags/emotes prefferred to talk]
 
@@ -23,13 +23,13 @@ DO NOT COVER, COPY OR CUDDLE! - Cuddles are okay as long as there’s C+H in my 
 
 DO NOT INTERACT🔪
 
-× RACISTS, HOMOPHOBES/TRANSPHOBES, SEXISTS, ECT…
+× RACISTS, HOMOPHOBES,TRANSPHOBES, SEXISTS, ECT…
 
 × ANTI-FURRIES, ANTITHERIANS OR ANTIALTERHUMANS 
 
 × TROLLS
 
-× NO RELIGION FORCING 
+× NO RELIGION FORCING, I'm happy with my own as a Satanist and Mother Earth believer
 
 Overall any kind of harrassment too you pathetic being.
 
