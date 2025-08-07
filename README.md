@@ -15,6 +15,7 @@ Glimpse of my vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 🌙/🟢: Online // ⛔️: AFK or busy w/ skins (W2I then)
 
 Neurodivergent disordered queer plural and alterhuman [ask if curious] Rotting dancing corpse not scared to bite
+Ame-Chan #1 Kinnie Ig
 
 Don't request until we've talked a bit [Tonetags/emotes prefferred to talk]
 
@@ -45,7 +46,7 @@ TV/MEDIAS - Creepypastas, Marble Hornets, Spirited Away, Murder Drones, Hazbin H
 
 MANGAS/ANIME - Toilet Bound Hanako-Kun, Demon Slayer, My Hero Academia, Pokemon, Bungou Stray Dog, Gushing Over Magical Girls...
 
-GAMES - Doki Doki Literature Club, Needy Streamer Overload, Minecraft, Zelda Breath Of The Wild, Pokemon Sword And Shield, Genshin Impact, Honkai Star Rail, The Coffin Of Andy And Ashley, Ponytown duh…
+GAMES - Doki Doki Literature Club, Needy Streamer Overload, Yandere Simulator, Minecraft, Zelda Breath Of The Wild, Pokemon Sword And Shield, Genshin Impact, Honkai Star Rail, The Coffin Of Andy And Ashley, Ponytown duh…
 
 MUSIC - Jazmin Bean, S3RL, Baby Bugs, Zheanie, Filthshit, Ke$ha, Poppy, Reol, My Chemical Romance, Rebzyyx, Penelope Scott, Hatsune Miku, Guchiry, Lady Monster, Ghost And Pals, Melanie Martinez, Suicidal Idol, Biz, any breakcore, and more and more and more amd m0re @n& mx:r3 more MORE MORE MORE MORE MORE MORE MORE MORE MORE M&;?!'F&...
 
