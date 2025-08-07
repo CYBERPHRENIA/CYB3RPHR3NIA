@@ -12,7 +12,7 @@ Glimpse of my vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 **KANNIBALKUNT/KANNIBALKUNT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 -->
-🌙/🟢: Online // ⛔️: AFK or busy w/ skins
+🌙/🟢: Online // ⛔️: AFK or busy w/ skins (W2I then)
 
 Neurodivergent disordered queer plural and alterhuman [ask if curious] Rotting dancing corpse not scared to bite
 
