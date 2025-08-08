@@ -15,7 +15,6 @@ Glimpse of my vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 🌙/🟢: Online // ⛔️: AFK or busy w/ skins (W2I then)
 
 Neurodivergent disordered queer plural and alterhuman [ask if curious] Rotting dancing corpse not scared to bite
-Ame-Chan #1 Kinnie Ig
 
 Don't request until we've talked a bit [Tonetags/emotes prefferred to talk]
 
