@@ -38,11 +38,11 @@ Overall any kind of harrassment too you pathetic being.
 
 INTERESTS🍬
 
-OCS/AU: Don’t be shy to share! I love hearing about it and helping for ideas, even do crossovers and/or rp. (plz, plz, plz)
+OCS/AU: I love hearing about it and helping for ideas, even do crossovers and/or rp. (plz, plz, plz)
 
 AESTHETICS/FASHIONS - Cutegore, Scene, Emo, Pastel Goth, Weirdcore, Dreamcore, Internetcore, Cryptidcore, Nightcore, Jirai-Kei, 2020 alt, fleshcore
 
-TV/MEDIAS - Creepypastas, Marble Hornets, Spirited Away, Murder Drones, Hazbin Hotel, Helluva Boss,Psychocuties, any horror psychological or ‘fantasy’ movie/series…
+TV/MEDIAS - Creepypastas, Marble Hornets, SCP, Spirited Away, Murder Drones, Hazbin Hotel, Helluva Boss, Psychocuties, any horror psychological or ‘fantasy’ movie/series…
 
 MANGAS/ANIME - Toilet Bound Hanako-Kun, Demon Slayer, My Hero Academia, Pokemon, Bungou Stray Dog, Gushing Over Magical Girls...
 
