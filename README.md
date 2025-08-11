@@ -33,7 +33,6 @@ DO NOT INTERACT🔪
 
 × PROSHIPPERS OR ANY OTHER OF THAT KIND
 
-Overall any kind of harrassment too you pathetic being.
 
 INTERESTS🍬
 
@@ -43,7 +42,7 @@ AESTHETICS/FASHIONS - Cutegore, Scene, Emo, Pastel Goth, Weirdcore, Dreamcore, I
 
 TV/MEDIAS - Creepypastas, Marble Hornets, SCP, Spirited Away, Murder Drones, Hazbin Hotel, Helluva Boss, Psychocuties, any horror psychological or ‘fantasy’ movie/series…
 
-MANGAS/ANIME - Toilet Bound Hanako-Kun, Demon Slayer, My Hero Academia, Pokemon, Bungou Stray Dog, Gushing Over Magical Girls...
+MANGAS/ANIME - Toilet Bound Hanako-Kun, Demon Slayer, My Hero Academia, Pokemon, Bungou Stray Dog, Gushing Over Magical Girls, Cyberpunk Edgerunners...
 
 GAMES - Doki Doki Literature Club, Needy Streamer Overload, Yandere Simulator, Minecraft, Zelda Breath Of The Wild, Pokemon Sword And Shield, Genshin Impact, Honkai Star Rail, The Coffin Of Andy And Ashley, Ponytown duh…
 
