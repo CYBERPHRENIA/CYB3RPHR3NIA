@@ -51,6 +51,6 @@ MUSIC - Jazmin Bean, S3RL, Baby Bugs, Zheanie, Filthshit, Ke$ha, Poppy, Reol, My
 RESTART FILE...
 
 I DO NOT SUPPORT THE ACTIONS OF ANYONE/ANYTHING PROBLEMATIC OBVIOUSLY OR AM PART OF SOME FANDOM, I JUST ENJOY THE CREATIONS.
-Except cannibalism maybe-🔪
+Except cannibalism maybe-🔪 /j
 
 
