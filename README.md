@@ -36,6 +36,8 @@ DO NOT INTERACT🔪
 
 × OVER 20 AND UNDER 13, THE BODY'S STILL A MINOR
 
+![image](https://files.catbox.moe/7b71cc.jpeg)
+
 
 INTERESTS🍬
 
