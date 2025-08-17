@@ -5,18 +5,20 @@
 INTERACT WITH THIS ENTITY   + YES        or        × NO 
 
 
-"Round and round the ghosts of beauty glide, and haunt the places where their honour died"
+*"Am I sane? Have I gone mad? Did my eyes deceive me?"*
 
-Glimpse of my vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
+Glimpse of our vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 <!--
 **KANNIBALKUNT/KANNIBALKUNT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 -->
 🌙/🟢: Online // ⛔️: AFK or busy w/ skins (W2I then)
 
-Neurodivergent disordered queer plural and alterhuman [ask if curiou]
+Neurodivergent disordered queer plural and alterhuman [ask if curious]
 
-Don't request until we've talked a bit
+Known as CYB3RPHR3NIA.
+
+Don't request until we've talked a bit.
 
 DO NOT COVER, COPY OR CUDDLE! - Cuddles are okay as long as there’s C+H in my name. I can accept to be covered from GOOD friends. Taking inspo from my skins is okay, but do not copy or post without having my permission.
 
