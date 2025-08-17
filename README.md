@@ -15,7 +15,6 @@ Glimpse of our vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 🌙/🟢: Online // ⛔️: AFK or busy w/ skins (W2I then)
 
 Neurodivergent disordered queer plural and alterhuman [ask if curious]
-Known as CYB3RPHR3NIA over the internet.
 
 Don't request until we've talked a bit.
 
